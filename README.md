@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @tsurikova-nadezhda
 - 👀 I’m interested in biostatistics, science, medicine
-- 🌱 I’m currently learning biostatistics and data analytics
+- 🌱 I’m currently learning biostatistics and data analisis
 - 📫 You can reach me via telegram @Nadine_Tsurikova or via e-mail @tsuriova.na@ya.ru
